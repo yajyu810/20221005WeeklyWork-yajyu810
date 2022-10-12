@@ -1,0 +1,1 @@
+# 20221005WeeklyWork-yajyu810
